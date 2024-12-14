@@ -1,0 +1,1 @@
+Wallpapers with a single object on a usually blank background.
